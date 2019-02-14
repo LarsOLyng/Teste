@@ -1,3 +1,0 @@
-//
-
-Hvorfor ikke?
